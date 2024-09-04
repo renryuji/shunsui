@@ -1,1 +1,1 @@
-# shunsui
+rentry.co/shunsui guys pls
